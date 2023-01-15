@@ -1,4 +1,4 @@
-Yo! Name is CJ. How are you doing? 
+Yo! Name is CJ, or you can call me Katoh. How are you doing? 
 
 I like surpassing my limits and learning new things. I can be a very competitive person at times but kinda lazy at other times. If you ever get to see or meet me in real life, you'd know who I am... that sounded better in my head.
 
